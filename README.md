@@ -1,5 +1,6 @@
-About Me:
-Just another  madman seeking the Eldritch truth
+
+
+Let us sit about, and speak feverishly. Chatting into the wee hours of... New ideas, of the higher plane!
 
 
 ✉️ Hunters Bell:
