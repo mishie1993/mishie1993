@@ -1,8 +1,8 @@
-# 💫 About Me:
+# About Me:
 Just another  madman seeking the Eldritch truth
 
 
-## 🌐 Hunters Bell:
+##✉️ Hunters Bell:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/bl00dycrow) 
 
 # 💻 My hunter tools:
